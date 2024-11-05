@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning 3d Animation
 - 💞️ I’m looking to collaborate with Riot Games
 - 📫 How to reach me :
-  Discord --> not_kazupie
-  Email : ozengame33@gmail.com
+  Discord --> not_kazupie /
+  Email : ozengame33@gmail.com /
   Instagram --> Just_kazupie
 - 😄 Pronouns: He/him
 
