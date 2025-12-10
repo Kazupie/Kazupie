@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @Kazupie
-- 👀 I’m interested in 3d Animation
-- 🌱 I’m currently learning 3d Animation
-- 💞️ I’m looking to collaborate with Riot Games
+- 👀 I’m interested in 3D
+- 🌱 I’m currently learning 3D
+- 💞️ I’m looking for opportunities
 - 📫 How to reach me :
-  Discord --> not_kazupie /
-  Email : ozengame33@gmail.com /
+  Discord --> not_kazupie
   Instagram --> Just_kazupie
 - 😄 Pronouns: He/him
 
